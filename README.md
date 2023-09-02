@@ -2,7 +2,7 @@
 - 👀 I’m interested in painting
 - 🌱 I dont really like being around people
 - 💞️ My close friends mean everything to me
-- 📫 I love talking with welsia
+- 🫶 I hope you will like to be my friend?
   
 
 <!---
